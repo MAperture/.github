@@ -1,5 +1,6 @@
 ## hi.
 
-We WILL do things like games, software, etc.
+We do things.
 <br>
-You can involve by contributing or joining MAperture.
+EXCUSE ME MAGIC DO YOU WANNA GET REPORTED??
+ur mam
